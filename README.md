@@ -1,0 +1,1 @@
+# mfg-ai-course
